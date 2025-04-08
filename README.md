@@ -34,5 +34,5 @@ Me chamo Tess e estou explorando o mundo da programação como forma de crescer 
 Vem acompanhar meus estudos por aqui 💻✨
 
 📫 Vamos conversar?
-🔗 [🔗 Meu LinkedIn](https://www.linkedin.com/in/stephanie-magnani/)
+🔗 [Meu LinkedIn](https://www.linkedin.com/in/stephanie-magnani/)
 📧 stephaniemagnanicouto1@gmail.com
